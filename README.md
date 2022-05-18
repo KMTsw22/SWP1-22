@@ -1,1 +1,2 @@
 MINTAE KIM 20223054
+Kookmin Univ. SW
